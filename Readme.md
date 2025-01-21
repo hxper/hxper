@@ -6,7 +6,7 @@
 ### **<div align="center">Hi there! 👋 I'm Hrishikesh Uttekar</div>**  
   
 
-<div align="center">🚀 Product Development Associate @ Ataneo Technologies
+<div align="center">🚀 Creative and Oprations Lead @ Ataneo Technologies
 💻 Computer Science Graduate</div>  
   
 
